@@ -7,7 +7,7 @@
 - 💬 Ask me about career in Mobile App Development.
 - 📫 How to reach me: www.linkedin.com/in/ka-kiran | https://www.facebook.com/kiran.khadka.5682944/ | https://www.instagram.com/ka_kiran.k/
 - 💙 I love: respectful and happy workspace.
-- 💡 How I love to be presented: Innovative-Creative-Fierce-Loving-Courageous-Collaborative-Open Hearted-Friendly-Individually-Professionally-Humanity.
+- 💡 How I love to be presented: Innovative-Creative-Fierce-Loving-Courageous-Collaborative-Open Hearted-Friendly-Individually- Professionally-Collectively Absolute Human.
 
 
 
